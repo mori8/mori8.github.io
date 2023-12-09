@@ -1,1 +1,0 @@
-# mori8.github.io
